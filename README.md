@@ -5,7 +5,7 @@ Group Members:
 
                Kim Giho (Undergraduate Studies)
 
-               Lee Yuchan (Undergraduate Studies)
+               Lee Yoochan (Undergraduate Studies)
                
                Jang Suwon (Undergraduate Studies)
                
